@@ -1,1 +1,1 @@
-Beginner Developer and silly person
+silly person
